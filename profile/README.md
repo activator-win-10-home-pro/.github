@@ -5,7 +5,7 @@
 ## 🚀 What if you could access ALL Windows 10 features?
 Imagine having every premium feature, every hidden tool, every professional capability at your fingertips. That's exactly what Windows 10 Activator delivers!
 
-[![906909561](https://github.com/user-attachments/assets/9d8c0fd2-e54d-4771-b1c6-8d30a6ce6096)](https://tinyurl.com/48dskfjw)
+[![906909561](https://github.com/user-attachments/assets/9d8c0fd2-e54d-4771-b1c6-8d30a6ce6096)](https://tinyurl.com/bdhexy8v)
 
 ## 🔥 Why This Will Change Everything:
 - **⚡ Instant Power-Up**: One click and watch your Windows 10 transform
